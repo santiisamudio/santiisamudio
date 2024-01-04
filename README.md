@@ -5,7 +5,7 @@
   
 ![hollow-knight-reading-map-pixel-art](https://github.com/santiisamudio/santiisamudio.github.io/assets/125133469/eb61d156-52d3-4da2-b383-616e2b9ceb44)  
 
-### Cv: https://santiisamudio.github.io
+### Portfolio: https://santiisamudio.github.io
 
 ### Contacto 💬: 
 <p align="center">
