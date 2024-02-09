@@ -21,7 +21,7 @@
 
 ![gol-d-roger-one-piece](https://github.com/santiisamudio/santiisamudio.github.io/assets/125133469/3c23f8fb-ec4d-4511-91c9-0a0c14365b5c)
 
-<h2> Facultad </h2>
+<h2> Proyectos </h2>
 
 -----
 
